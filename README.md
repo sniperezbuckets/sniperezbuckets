@@ -26,8 +26,7 @@ Here are some of the projects I am working on or have worked on:
 
 ## Contact
 
-You can reach out to me via email at stephane.zacko@example.com or connect with me on [LinkedIn](https://www.linkedin.com/in/yourusername).
+You can reach out to me via email at szacko67@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/yourusername).
 
 ## Let's Connect!
 
-I'm
